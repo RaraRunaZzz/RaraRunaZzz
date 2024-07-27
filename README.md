@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @RaraRunaZzz
 - 👀 I’m interested in singing
-- 🌱 I’m currently learning Guzheng
+- 🌱 I’m currently learning Aikido
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
